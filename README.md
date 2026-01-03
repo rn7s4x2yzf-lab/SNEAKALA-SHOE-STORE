@@ -1,1 +1,9 @@
-# SNEAKALA-SHOE-STORE
+# SNEAKALA-SHOE-STORESurakarta - Bisnis ritel sepatu, khususnya sneakers, terus menunjukkan peluang perkembangan yang signifikan. Hal ini mendorong hadirnya berbagai merek dan model sepatu di pasar, mulai dari kasual, formal, hingga sepatu olahraga. Fokus pada sneakers menjadi dasar bagi usaha "Sneakala Shoe Store," yang didirikan oleh Merlina Ainur Khalifah dan Vania Tifani.  
+Analisis Pasar dan Target Konsumen Permintaan tertinggi di pasar berasal dari segmen sneakers dan sepatu olahraga, terutama di kalangan pekerja muda, mahasiswa, dan remaja. Store menyediakan beberapa merk sepatu yang banyak diminati oleh konsumen, seperti New Balance, Vans, Converse, Nike dan Adidas.
+
+Target pasar utama dari "Sneakala Shoe Store" adalah remaja hingga dewasa muda (usia 15–27 tahun). Konsumen pada rentang usia ini cenderung aktif mengikuti tren fashion dan terbiasa berbelanja secara daring, terutama melalui marketplace atau media sosial. Sneakala Shoe menyediakan online strore dibeberapa aplikasi seperti instagram resmi, tik tok, serta shoope atau ingin mencari informasi lebih detail dan lebih panjut dapat menghubungi via whatsapp yang tertera, yaitu 08886992881. Lokasi potensial terbesar bagi bisnis ini adalah kota besar dan kota kampus, di mana tren fashion cepat berubah dan kebutuhan akan gaya lebih tinggi.  
+ 
+Segmentasi pasar mencakup usia (remaja hingga dewasa muda), Permintaan cenderung meningkat pada musim sekolah, saat munculnya tren fashion baru, dan tren olahraga. Penjualan online melalui marketplace sangat mendominasi pasar sepatu, didorong oleh banyaknya pilihan produk dan harga yang kompetitif.  
+
+Hasil Penjualan dan Keuntungan (Satu Bulan)
+Berdasarkan data satu bulan, usaha "Sneakala Shoe Store" yang menjual berbagai merek sneakers menunjukkan keuntungan positif. Awal memulai usaha ini menjadi suatu langkah untuk memperbesar usaha dari nol ke usaha yang lebih luas jangkauan.
